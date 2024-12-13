@@ -1,1 +1,1 @@
-# MSCS-Advanced-topics---Agumented-Reality
+# MSCS-Advanced-topics-Augmented-Reality white paper
